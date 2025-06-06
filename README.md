@@ -1,1 +1,0 @@
-# TelecomX_LATAM
